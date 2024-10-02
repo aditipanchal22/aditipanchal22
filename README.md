@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aditipanchal22
+- 👋 Hi, I’m aditi panchal ,currently iam purchasing bca degre in mit-vpu university.
 - 👀 I’m interested in c programing , python
 - 🌱 I’m currently learning both c programing and python
 - 💞️ I’m looking to collaborate with company or projects. 

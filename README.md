@@ -1,7 +1,7 @@
 - 👋 Hi, I’m aditi panchal ,currently i am purchasing bca degre in mit-vpu university.
-- 👀 I’m interested in c programing , python.
+- 👀 I’m interested in c programing and python.
 - 🌱 I’m currently learning both c programing and python.
-- 💞️ I’m looking to collaborate with company or projects. 
+- 💞️ I’m looking to collaborate with company or projects, i want to improve my skills for the future better opportunities. 
 - 📫 How to reach me  aditipanchal32@gmail.com
   
 - ⚡ Fun fact i  love to design-tshirt and graphics.
